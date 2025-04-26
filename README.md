@@ -1,5 +1,4 @@
-
-![53170a26552d8930f8d74d7e8ec9a78a](https://github.com/user-attachments/assets/66854bea-2668-4483-a4e3-344017db393d)
+![rem](https://64.media.tumblr.com/816d9944fef1820f13f82082c87004ac/8c365324546a085b-8c/s640x960/6458efa5d8e341c5ca2e18f3fe7b5f2cf4c889f8.gifv)
 
 ' i'm willin' t' take the risk for you. you willin t' do the same for me?  .*
 
