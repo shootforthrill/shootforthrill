@@ -11,7 +11,7 @@ c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see
   ๋࣭ ⭑ if you are a double of my irls, please iwc. (gambit - xmen, alucard - cv.) ⛓⊹ ࣪ ˖
 
 *<p align="center">
-—i am not a system, nor claiming to be.*
+—i am not a system, nor claiming to be ; this is DA.*
 
 ***<p align="center">
 that being said, canonmates please interact!***
