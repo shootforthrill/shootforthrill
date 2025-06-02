@@ -2,7 +2,8 @@
 
 *<p align="center">
 ࣪ ִֶָ☾. ' i know your lives have been hard. .ᐟ⋆ but the world is not against you. .⋆♱ i am not against you , 🗡𝜗𝜚 ,*
-
+****<p align="center">
+⚔︎ please read my strawpage before interacting. 𝜗𝜚 ,,***
 ***<p align="center">
 c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see your messages.***
 
