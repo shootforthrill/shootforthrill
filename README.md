@@ -5,6 +5,9 @@
 ***<p align="center">
 c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see your messages.***
 
+<p align="center">
+  ๋࣭ ⭑ if you are a double of my irls, please iwc. (gambit - xmen, alucard - cv.) ⛓⊹ ࣪ ˖
+  *—i am not a system, nor claming to be.*
 ---
 **please read dni + byi .**
 
