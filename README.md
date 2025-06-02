@@ -7,7 +7,13 @@ c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see
 
 <p align="center">
   ๋࣭ ⭑ if you are a double of my irls, please iwc. (gambit - xmen, alucard - cv.) ⛓⊹ ࣪ ˖
-  *—i am not a system, nor claming to be.*
+
+*<p align="center">
+—i am not a system, nor claiming to be.*
+
+***<p align="center">
+that being said, canonmates please interact!***
+  
 ---
 **please read dni + byi .**
 
