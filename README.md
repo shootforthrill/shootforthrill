@@ -10,7 +10,7 @@ c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see
 ---
 
 <p align="center">
-  ๋࣭ ⭑ if you are a double of my irls, please iwc. (gambit - xmen, alucard - cv.) ⛓⊹ ࣪ ˖
+  ๋࣭ ⭑ if you are a double of my irls, please iwc. (gambit - xmen, trevor belmont - cv.) ⛓⊹ ࣪ ˖
 
 *<p align="center">
 —i am not a system, nor claiming to be ; this is DA.*
