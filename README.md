@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/1d6dfff3-3384-48ba-973c-a1ce725f09b6)
+![image-Photoroom](https://github.com/user-attachments/assets/f26147a3-7906-4a6c-b532-e99418d4427d)
+
 
 *<p align="center">
 ࣪ ִֶָ☾. ' i know your lives have been hard. .ᐟ⋆ but the world is not against you. .⋆♱ i am not against you , 🗡𝜗𝜚 ,*
