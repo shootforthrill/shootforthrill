@@ -25,3 +25,5 @@ that being said, canonmates please interact!***
 [straw](https://shootforthrill.straw.page/)     [ata](https://shootforthrill.atabook.org/)     [tumblr](https://www.tumblr.com/shootforthrill) 
 
 drawing requests on tumblr asks appreciated <3
+
+![image](https://github.com/user-attachments/assets/eb1295c2-c0b2-4c0f-8ef7-22406cd6e0dc)
