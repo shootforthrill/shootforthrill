@@ -1,10 +1,11 @@
 <p align="center">
-<img width="707" height="353" alt="Jojos-Bizarre-Adventure---Still-Frame-From-Part-3-ED-Last-Train-Home-Of-A-Polaroid-With-The-Whole-Group-Standing-Together-removebg-preview" src="https://github.com/user-attachments/assets/8fe03f57-3311-42b1-bb26-1f5f13cca1f9" />
+<img width="918" height="918" alt="image" src="https://github.com/user-attachments/assets/0b2b7037-3041-4117-ba4f-7e65cdd35a9d" />
+
 
 
 
 *<p align="center">
-࣪ ִֶָ☾. ' i know your lives have been hard. .ᐟ⋆ but the world is not against you. .⋆♱ i am not against you , 🗡𝜗𝜚 ,*
+࣪ ִֶָ☾. ' 𝙄𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙖𝙡𝙬𝙖𝙮𝙨 𝙬𝙤𝙧𝙧𝙞𝙚𝙙 𝙖𝙗𝙤𝙪𝙩 𝙘𝙧𝙪𝙨𝙝𝙞𝙣𝙜 𝙩𝙝𝙚 𝙖𝙣𝙩𝙨 𝙗𝙚𝙣𝙚𝙖𝙩𝙝 𝙮𝙤𝙪, 𝙮𝙤𝙪 𝙬𝙤𝙣'𝙩 𝙗𝙚 𝙖𝙗𝙡𝙚 𝙩𝙤 𝙬𝙖𝙡𝙠. 🗡𝜗𝜚 ,*
 ****<p align="center">
 ⚔︎ please read my strawpage before interacting. 𝜗𝜚 ,,***
 ***<p align="center">
@@ -13,10 +14,7 @@ c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see
 ---
 
 <p align="center">
-  ๋࣭ ⭑ if you are a double of my irls, please iwc. (gambit - xmen, trevor belmont - cv.) ⛓⊹ ࣪ ˖
-
-*<p align="center">
-—i am not a system, nor claiming to be ; this is DA.*
+  ๋࣭ ⭑ if you are a double of my irls, or yumeships... please iwc. ⛓⊹ ࣪ ˖
 
 ***<p align="center">
 that being said, canonmates please interact!***
@@ -28,5 +26,3 @@ that being said, canonmates please interact!***
 
 drawing requests on tumblr asks appreciated <3
 
-
-![image](https://github.com/user-attachments/assets/eb1295c2-c0b2-4c0f-8ef7-22406cd6e0dc)
