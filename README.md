@@ -1,5 +1,3 @@
-<p align="center">
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/0b2b7037-3041-4117-ba4f-7e65cdd35a9d" />
 
 
 
@@ -10,11 +8,15 @@
 ⚔︎ please read my strawpage before interacting. 𝜗𝜚 ,,***
 ***<p align="center">
 c+h heavily encouraged. ⋆˚࿔ typically off-tab ; please whisper so i can see your messages.***
+***<p align="center"> 
+a lot of my profiles are wip, including this github. I'm returning to PT after a LONG time and I'm a bit lazy to fix things, sorry!
 
 ---
 
 <p align="center">
   ๋࣭ ⭑ if you are a double of my irls, or yumeships... please iwc. ⛓⊹ ࣪ ˖
+<p align="center">
+  (mains) GAMBIT irl , JOHNNY SLAUGHTER yumeshipper (selective-sharing) 
 
 ***<p align="center">
 that being said, canonmates please interact!***
